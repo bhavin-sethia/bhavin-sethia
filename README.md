@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bhavin-sethia
+- 👋 Hi, I’m Bhavin Sethia
 - 📫 Reach me on 9408380336 or bhvainsethia@gmail.com
 
 <!---
